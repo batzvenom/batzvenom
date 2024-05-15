@@ -4,4 +4,4 @@ autistic freak !! beware !! while ur here enjoy my garbage stamp collection
 
 ![stamp](https://64.media.tumblr.com/1198fa73f52c7d21d0271369618aae90/tumblr_inline_pcjghddwtF1vss73l_250.gif)
 
-[![Screenshot-2024-05-14-231022.png](https://i.postimg.cc/Jzf92rrc/Screenshot-2024-05-14-231022.png)](https://postimg.cc/hX0yJq7f) [![Screenshot-2024-05-14-231052-3.png](https://i.postimg.cc/RVpbJM2Q/Screenshot-2024-05-14-231052-3.png)](https://postimg.cc/XpFgT0jp)
+[![Screenshot-2024-05-14-231022.png](https://i.postimg.cc/Jzf92rrc/Screenshot-2024-05-14-231022.png)](https://postimg.cc/hX0yJq7f)
