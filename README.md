@@ -4,5 +4,6 @@ autistic freak !! beware !! while ur here enjoy my garbage stamp collection
 
 ![stamp](https://64.media.tumblr.com/1198fa73f52c7d21d0271369618aae90/tumblr_inline_pcjghddwtF1vss73l_250.gif)  [![3hTNM](https://s.dcave.net/cache/images/3/3slup5.png)](https://dragcave.net/view/3hTNM)  [![GWUci](https://s.dcave.net/cache/images/8/853ci.png)](https://dragcave.net/view/GWUci)  [![zFhVf](https://s.dcave.net/cache/images/1/137987p.gif)](https://dragcave.net/view/zFhVf)  [![jVLCM](https://s.dcave.net/cache/images/r/rx6rcr.png)](https://dragcave.net/view/jVLCM)
 
+even though i have a dni list i really do not gaf just dont be weird
 
 [![Screenshot-2024-05-14-231022.png](https://i.postimg.cc/Jzf92rrc/Screenshot-2024-05-14-231022.png)](https://postimg.cc/hX0yJq7f)
