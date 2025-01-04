@@ -6,8 +6,8 @@ autistic freak !! beware !! while ur here enjoy my garbage stamp collection
 
 even though i have a dni list i really do not gaf just dont be weird
 
-snif... send me things on strawpage and atabook pleek
+send me things on strawpage and atabook pleek
 
-erm idk add me on league i guess: batzvenom #0001
+add me on league if u wanttt: batzvenom #0001 (NA)
 
 <img src="https://i.postimg.cc/xdPkDpYx/705617d78322f7dd57b0738dc3b08d67.jpg" width="200">
