@@ -7,6 +7,8 @@ autistic freak !! beware !! while ur here enjoy my garbage stamp collection
 
 ![stamp](https://64.media.tumblr.com/1198fa73f52c7d21d0271369618aae90/tumblr_inline_pcjghddwtF1vss73l_250.gif)
 
+TALK TO ME ABOUT ROPE 1948 !!!!!!!!!!!!!!!!!!!!
+
 even though i have a dni list i really do not gaf just dont be weird
 
 send me things on strawpage and atabook pleek
