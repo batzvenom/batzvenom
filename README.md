@@ -13,4 +13,4 @@ send me things on strawpage and atabook pleek
 
 add me on league if u wanttt: batzvenom #LUKAI (NA)
 
-<img src="https://i.postimg.cc/xdPkDpYx/705617d78322f7dd57b0738dc3b08d67.jpg" width="200">
+<img src="https://i.postimg.cc/L6Ccnnt6/IMG-3538.jpg" width="200">
